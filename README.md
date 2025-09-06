@@ -43,9 +43,14 @@ half. A common pose of the serpent is in a circular formation, signifying the ka
 Behind the aesthetics of the Ouroboros lie millennia of civil wars, betrayals, and factionalism that serve as 
 psychological support for the acceptance of the Ouroboros solution, a solution that tends to be presented as 
 the light of purification by its supporters. Bakura, after escaping the Kul Elna massacre, waged a kleptocratic 
-campaign with fellow horsemen. In the couple years leading up to Bakara's invasion, the Egyptian capital was 
+campaign with fellow horsemen. In the couple of years leading up to Bakara's invasion, the Egyptian capital was 
 disconnected in military coordination and government campaigns not planned out in settings of full consultation. 
 There was evidence of factionalism and little shared acknowledgment between leaders on these matters. Bakura was 
-able to storm in what appears to be a straight and rapid path right to the palace of the young Pharaoh that 
+able to storm in what appears to be a straight and rapid path right into the palace of the young Pharaoh that 
 took over rule after the passing of his father. There is this theme of contested thrones and evil seconds ( 
-jealous right-hand men, subordinate uncles, et cetera). 
+jealous right-hand men, subordinate uncles, et cetera). The small group of elites serving the Pharaoh also have monsters 
+of their own. Despite the lack of official status, the Diabound Kernel is able to defeat these Egyptian elites. The 
+Diabound Kernel transforms itself, via absorbing the energy of its fallen adversaries, for stronger capabilities over 
+the course of its existence, shortly but surely able to rival the greatest god monsters by the Pharaoh himself. The plotline 
+of Bakura and Diabound Kernel illuminates on the dominance of chaos when chaos seems to have suddenly appears to be an endpoint 
+to a lot of time spent by human beings with failing and malformed connections between leadership and the greater world. 
