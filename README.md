@@ -23,5 +23,5 @@ shadow-gaming.
 
 Maybe it is too much to ask for anything other than an idyllic environment, and that can be 
 found in Charlotte County. But there is a world outside not explored yet by me. Certain parts 
-of the Orient has hit the bottom of my list in the past 5 years. And there must be valid cause 
+of the Orient have hit the bottom of my list in the past 5 years. And there must be valid cause 
 for my blind eye to these certain peoples.
