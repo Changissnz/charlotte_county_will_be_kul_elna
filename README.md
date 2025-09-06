@@ -25,3 +25,9 @@ Maybe it is too much to ask for anything other than an idyllic environment, and 
 found in Charlotte County. But there is a world outside not explored yet by me. Certain parts 
 of the Orient have hit the bottom of my list in the past 5 years. And there must be valid cause 
 for my blind eye to these certain peoples.
+
+The slums. Most people prefer not to live in them, given other options legally or illegally 
+attainable. What did the village of Kul Elna do for a living? How did the village get founded? 
+Would Kul Elna villagers not have preferred the luxuries offered by the Cairo Metropolis? Was 
+Kul Elna tied to the land in the same way daytime Egyptian laborers had to worship the sun, whether 
+through choice or experience? 
