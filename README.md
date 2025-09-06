@@ -31,3 +31,8 @@ attainable. What did the village of Kul Elna do for a living? How did the villag
 Would Kul Elna villagers not have preferred the luxuries offered by the Cairo Metropolis? Was 
 Kul Elna tied to the land in the same way daytime Egyptian laborers had to worship the sun, whether 
 through choice or experience? 
+
+Kul Elna begs the question of if people are sometimes born into sin. The answer is yes, from my perspective. 
+But I am stopping short of stating that that guarantees eternal damnation. I believe that wanting for an 
+idyllic life is also sinful, from the basis of sloth. Sloth, being a sin, falls in the bottom half 
+of the Seven Deadly Sins. So here is a question, if a sin is a sin, why not always choose #1?
