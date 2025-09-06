@@ -43,7 +43,7 @@ half. A common pose of the serpent is in a circular formation, signifying the ka
 Behind the aesthetics of the Ouroboros lie millennia of civil wars, betrayals, and factionalism that serve as 
 psychological support for the acceptance of the Ouroboros solution, a solution that tends to be presented as 
 the light of purification by its supporters. Bakura, after escaping the Kul Elna massacre, waged a kleptocratic 
-campaign with fellow horsemen. In the couple of years leading up to Bakara's invasion, the Egyptian capital was 
+campaign with fellow horsemen. In the couple of years leading up to Bakura's invasion, the Egyptian capital was 
 disconnected in military coordination and government campaigns were not planned out in settings of full consultation. 
 There was evidence of factionalism and little shared acknowledgment between leaders on these matters. Bakura was 
 able to storm in what appears to be a straight and rapid path right into the palace of the young Pharaoh that 
