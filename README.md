@@ -40,4 +40,6 @@ of the Seven Deadly Sins. So here is a question, if a sin is a sin, why not alwa
 The monster conjured by Bakura, through the dark passions from spiritual vengeance, is called the Diabound 
 Kernel. Its base form is that of a grey statuesque winged anthromorphic human with a serpent for the lower 
 half. A common pose of the serpent is in a circular formation, signifying the karmic-derived idea of Ouroboros. 
-Behind the aesthetics of the Ouroboros lies millennia of civil wars, betrayals, and factionalism. 
+Behind the aesthetics of the Ouroboros lies millennia of civil wars, betrayals, and factionalism that serve as 
+psychological support for the acceptance of the Ouroboros solution, a solution that tends to be put into the 
+light of purification by its supporters.
