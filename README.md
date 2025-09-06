@@ -54,3 +54,7 @@ Diabound Kernel transforms itself, via absorbing the energy of its fallen advers
 the course of its existence, shortly but surely rivalling the greatest god monsters by the Pharaoh himself. The plotline 
 of Bakura and Diabound Kernel illuminates on the dominance of chaos when chaos seems to suddenly appear an endpoint 
 to a lot of time spent by human beings with failing and malformed connections between leadership and the greater world. 
+
+The Diabound Kernel spurred the creation of modern-day Pegasus' characteristic monster, Thousand Eyes Restrict, a clear 
+attempt to counter the always primal-for-prime kernel. Pegasus is an interesting example of the notion, "mortal creators 
+cannot be god-like rulers", a little sad fact on the eventuality of fall,defeat,and death to any one being. 
