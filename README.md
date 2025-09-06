@@ -43,4 +43,5 @@ half. A common pose of the serpent is in a circular formation, signifying the ka
 Behind the aesthetics of the Ouroboros lie millennia of civil wars, betrayals, and factionalism that serve as 
 psychological support for the acceptance of the Ouroboros solution, a solution that tends to be presented as 
 the light of purification by its supporters. Bakura, after escaping the Kul Elna massacre, waged a kleptocratic 
-campaign with fellow horsemen. 
+campaign with fellow horsemen. The Egyptian capital was disconnected in military coordination, government campaigns 
+not planned out in settings of full consultation. 
