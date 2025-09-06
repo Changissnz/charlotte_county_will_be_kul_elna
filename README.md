@@ -36,3 +36,8 @@ Kul Elna begs the question of if people are sometimes born into sin. The answer 
 But I am stopping short of stating that that guarantees eternal damnation. I believe that wanting for an 
 idyllic life is also sinful, from the basis of sloth. Sloth, being a sin, falls in the bottom half 
 of the Seven Deadly Sins. So here is a question, if a sin is a sin, why not always choose #1?
+
+The monster conjured by Bakura, through the dark passions from spiritual vengeance, is called the Diabound 
+Kernel. Its base form is that of a gray statuesque winged anthromorphic human with a serpent for the lower 
+half. A common pose of the serpent is in a circular formation, signifying the karmic-derived Ouroboros. 
+Behind the aesthetics of the Ouroboros lies millennia of civil wars, betrayals, and factionalism. 
