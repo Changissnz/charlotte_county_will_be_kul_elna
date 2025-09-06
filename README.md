@@ -51,6 +51,6 @@ took over rule after the passing of his father. There is this theme of contested
 jealous right-hand men, subordinate uncles, et cetera). The small group of elites serving the Pharaoh also have monsters 
 of their own. Despite the lack of official status, the Diabound Kernel is able to defeat these Egyptian elites. The 
 Diabound Kernel transforms itself, via absorbing the energy of its fallen adversaries, for stronger capabilities over 
-the course of its existence, shortly but surely able to rival the greatest god monsters by the Pharaoh himself. The plotline 
+the course of its existence, shortly but surely rivalling the greatest god monsters by the Pharaoh himself. The plotline 
 of Bakura and Diabound Kernel illuminates on the dominance of chaos when chaos seems to suddenly appear an endpoint 
 to a lot of time spent by human beings with failing and malformed connections between leadership and the greater world. 
