@@ -20,3 +20,7 @@ power dynamics in labor-intensive societies usually spare officials, at least fr
 state. Kul Elna was chosen. It was a time where Egyptian elites were waging "shadow games" 
 with each other. Kul Elna was like an item for their arsenal of weaponry to continue on 
 shadow-gaming. 
+
+Maybe it is too much to ask for anything other than an idyllic environment, and that can be 
+found in Charlotte County. But there is a world ooutside not explored yet by me. Certain parts 
+of the Orient has hit the bottom of my list in the past 5 years. 
