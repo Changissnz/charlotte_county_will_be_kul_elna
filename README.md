@@ -38,6 +38,6 @@ idyllic life is also sinful, from the basis of sloth. Sloth, being a sin, falls 
 of the Seven Deadly Sins. So here is a question, if a sin is a sin, why not always choose #1?
 
 The monster conjured by Bakura, through the dark passions from spiritual vengeance, is called the Diabound 
-Kernel. Its base form is that of a gray statuesque winged anthromorphic human with a serpent for the lower 
-half. A common pose of the serpent is in a circular formation, signifying the karmic-derived Ouroboros. 
+Kernel. Its base form is that of a grey statuesque winged anthromorphic human with a serpent for the lower 
+half. A common pose of the serpent is in a circular formation, signifying the karmic-derived idea of Ouroboros. 
 Behind the aesthetics of the Ouroboros lies millennia of civil wars, betrayals, and factionalism. 
