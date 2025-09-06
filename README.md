@@ -12,7 +12,7 @@ only survivor from the village of Kul Elna that was deemed the darkest criminal
 spot in the ghettos surrounding Cairo, does not seem to me to be of fully Arabic descent. 
 Kul Elna is based on the Thebani necropolis, a destitute and barren region for the dead 
 to enjoy themselves in peace. Bakura and his fellow villagers of Kul Elna are most likely 
-Semitic or of Ptolemaic Greek progeny. Bakura has light-colored hair, something not derived  
+Semitic or of Ptolemaic Greek progeny. Bakura has light-colored hair, something not derived 
 from the Orient, and the few blondes in the Middle East are most likely products of the sex 
 and slave trade. Kul Elna was chosen for sacrifice due to ethnic differences, I believe. 
 Perhaps the villagers really were that evil from the context of human judgment. But the 
