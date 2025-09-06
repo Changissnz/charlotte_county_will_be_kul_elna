@@ -57,7 +57,7 @@ to a lot of time spent by human beings with failing and malformed connections be
 
 The Diabound Kernel spurred the creation of modern-day Pegasus' characteristic monster, Thousand Eyes Restrict, a clear 
 attempt to counter the always primal-for-prime kernel. Pegasus is an interesting example of the notion, "mortal creators 
-cannot be god-like rulers", a little sad fact on the eventuality of fall,defeat,and death to any one being. I came up with 
+cannot be god-like rulers", a little sad fact on the eventuality of fall,defeat,and death to any one state. I came up with 
 a conceptual monster of my own: Falsz Exaadi (False Exit, False Escape, Double-Recognition Errors). 
 
 ```
